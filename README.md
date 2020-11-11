@@ -61,3 +61,8 @@ The Company manages H&amp;K.com, an online auction and shopping website in which
 
 
 ![Screenshot from 2017-04-06 14_14_46](https://user-images.githubusercontent.com/46940879/98807589-c9e26200-2412-11eb-9608-5ce4bf2f0d0b.png)
+
+
+
+
+![Screenshot from 2017-04-06 14_15_38](https://user-images.githubusercontent.com/46940879/98807675-ea122100-2412-11eb-8245-b7319f74d52b.png)
